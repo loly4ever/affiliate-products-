@@ -6,10 +6,12 @@ Welcome to my affiliate marketing page! Check out these amazing digital products
 
 ---
 
-### 1. [Product Name Here](YOUR_AFFILIATE_LINK)
-Short description of what this product does and why it's helpful.
+### 1. The Ultimate Money Machine (U.M.M) https://digitstem.com/t/Yzd1VzVURDNlUFM5aWNwdmlNMUVGUT09-MjYzNDc4
 
-### 2. [Another Product](YOUR_AFFILIATE_LINK)
+
+
+
+### 2. [Anoth](YOUR_AFFILIATE_LINK)
 Quick summary of its benefits.
 
 ---
